@@ -1,5 +1,5 @@
 <details> <summary> $${\color{#db524b} ⪩♡⪨ \space about \space me \space !}$$ </summary>
-  
+
 •⠀⠀⠀an artist
 
 •⠀⠀⠀not looking for a friends rn
