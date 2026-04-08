@@ -1,3 +1,5 @@
+<details> <summary> $${\color{#db524b} ⪩♡⪨ \space about \space me \space !}$$ </summary>
+  
 •⠀⠀⠀an artist
 
 •⠀⠀⠀not looking for a friends rn
@@ -10,4 +12,4 @@
 
 •⠀⠀⠀I'm not a mean person, but if i behave like this - it's all just a joke and I'm so sorry about that
 
-hope that was reeeeaaaallllllllyyyyyy helpful (it's not)
+
