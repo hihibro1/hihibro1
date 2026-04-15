@@ -4,22 +4,26 @@
 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤㅤ꒰ঌᰔᩚ໒꒱ㅤ [strawpage!](https://manepearhihi.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ $$\color{#ee321f}{\text{ welcome to my github!! }}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
+
+
  
 
+ $$\color{#7cc991}{\text{hioo!! you can call me tsukii or any nicknames!}}$$
+ 
+ $$\color{#7cc991}{\text{i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
 
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀hioo!! you can call me tsukii or any nicknames! i usually sit with my friends but if you see me lounging around feel free to sit with me! (i can be shy to int sometimes!) }}$$
+ $$\color{#7cc991}{\text{(i can be shy to int sometimes!) }}$$
 
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀multifandom, multishipper }}$$
-
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀c+h freely, don′t copy my skins or any, int freely! }}$$
-
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀not really like talking about my real life }}$$
-
- $$\color{#7cc991}{\text{⠀•⠀ ⠀i can be afk sometimes suddenly }}$$
-
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀I'm not a mean person, but if i behave like this }}$$
-ㅤㅤㅤㅤㅤ
+ $$\color{#7cc991}{\text{multifandom, multishipper }}$$
+ 
+ $$\color{#7cc991}{\text{c+h freely, don′t copy my skins or any, int freely! }}$$
+ 
+ $$\color{#7cc991}{\text{not really like talking about my real life }}$$
+ 
+ $$\color{#7cc991}{\text{i can be afk sometimes suddenly }}$$
+ 
 
                                                                
