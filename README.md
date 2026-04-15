@@ -16,7 +16,7 @@
 
  $$\color{#7cc991}{\text{⠀•⠀⠀⠀hioo!! you can call me tsukii or any nicknames!) }}$$
 
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀multifandom, multishipper }}$$
+$$\color{#7cc991}{\text{⠀•⠀⠀⠀multifandom, multishipper }}$$
 
  $$\color{#7cc991}{\text{⠀•⠀⠀⠀c+h freely, don′t copy my skins or any, int freely! }}$$
 
