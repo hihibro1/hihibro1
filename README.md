@@ -1,9 +1,4 @@
-ㅤㅤㅤㅤㅤㅤ[atabook!](https://tsukkiii.atabook.org/)ㅤㅤ꒰ঌᰔᩚ໒꒱ㅤ [strawpage!](https://manepearhihi.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
-
-ㅤㅤㅤㅤ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="right" src="https://file.garden/ad7E6gx5M13uwG93/taxduo.png" alt="image" width="600" />
+<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/taxduo.png" alt="image" width="500" />
 
 
 
@@ -14,9 +9,9 @@
  
 
 
- $$\color{#7cc991}{\text{⠀•⠀⠀⠀hioo!! you can call me tsukii or any nicknames!) }}$$
+ $$\color{#7cc991}{\text{⠀•⠀⠀⠀hioo!! you can call me tsukii or any nicknames! i usually sit with my friends but if you see me lounging around feel free to sit with me! (i can be shy to int sometimes!) }}$$
 
- $$\color{#7cc991}{\text{⠀•⠀⠀multifandom, multishipper }}$$
+ $$\color{#7cc991}{\text{⠀•⠀⠀⠀multifandom, multishipper }}$$
 
  $$\color{#7cc991}{\text{⠀•⠀⠀⠀c+h freely, don′t copy my skins or any, int freely! }}$$
 
