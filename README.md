@@ -12,7 +12,7 @@ $$\color{#ee321f}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
  
 
 
- $$\color{#7cc991}{\text{hioo!! you can call me tsukii or any nicknames!}}$$
+ $$\color{#7cc991}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
  
  $$\color{#7cc991}{\text{i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
 
@@ -20,10 +20,8 @@ $$\color{#ee321f}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
 
  $$\color{#7cc991}{\text{multifandom, multishipper }}$$
  
- $$\color{#7cc991}{\text{c+h freely, don′t copy my skins or any, int freely! }}$$
- 
- $$\color{#7cc991}{\text{not really like talking about my real life }}$$
- 
+ $$\color{#7cc991}{\text{don′t copy my skins or any,! }}$$
+  
  $$\color{#7cc991}{\text{i can be afk sometimes suddenly }}$$
  
 
