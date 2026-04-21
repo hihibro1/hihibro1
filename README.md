@@ -3,7 +3,7 @@
 </p>
  <div align="center">
   <details>
- <summary>small info !</summary>
+ <summary>little info !!</summary>
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  
 <p align="left" dir="auto" >  
@@ -11,12 +11,14 @@
 </p> 
 
 
- <img align="left" width="150" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z26_20260415162241.png"> 
+
+
+ <img align="left" width="100" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z26_20260415162241.png"> 
 </a>
 <p align="left" dir="auto">‎ ‎ ‎ </p>
- <p align="left" dir="auto">ㅤㅤewroonㅤㅤor ㅤㅤtheo
- <p align="left"> c+h welcomed unless with friends
- ㅤㅤ <p align="left"> ㅤㅤㅤalt ; <a href="https://github.com/theothebaldbird">theothebaldbird
+ <p align="left"> i am a very shy person and don't usually interact first & i tend to not respond to messages very quickly because im mostly afk, = if you make me uncomfortable, i will block you or distance myself from you, but im a chill person so its very rare when i do that!
+ ㅤㅤ 
+ 
  
  </p>
 </p>
