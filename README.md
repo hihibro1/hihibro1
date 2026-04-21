@@ -1,3 +1,4 @@
+
  </a>
 </p>
  <div align="center">
@@ -6,8 +7,11 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  
 <p align="left" dir="auto" >  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img align="left" width="205" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z26_20260415162241.png">
+ <img align="left" width="205" src="https://file.garden/ad5gQNfoF0kAW8gS/.png">
 </p> 
+
+
+ <img align="left" width="150" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z26_20260415162241.png"> 
 </a>
 <p align="left" dir="auto">‎ ‎ ‎ </p>
  <p align="left" dir="auto">ㅤㅤewroonㅤㅤor ㅤㅤtheo
@@ -21,8 +25,8 @@
 </details>
 
 <p align="center"> 
-    <img src="https://komarev.com/ghpvc/?username=6ullets&label=recruits&color=88888a&style=plastic">
+
 
 <p align="center">
-<img align="center" width="400" src="https://files.catbox.moe/1l4x6j.png">
+<img align="center" width="400" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z41_20260421020930.png">
 </p>
