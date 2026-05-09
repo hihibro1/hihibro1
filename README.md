@@ -1,11 +1,18 @@
 ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新𝖻𝗈𝗈𝗄!](https://tsukkiii.atabook.org/)ㅤ꒰✿꒱ ㅤ[strawpage!](https://wifies1.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ <p align=center>
+ <a href="https://wifies1.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/strawpage.png" width="100" height="auto"/></a>
+ <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/atabook.png" width="100" height="auto"/></a>
+ <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://file.garden/ad7E6gx5M13uwG93/roblox11.png" width="100" height="auto"/></a>
+</p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
 
-$$\color{#639c9d}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨☯︎୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧ }}$$
 
+<p align="center"> 
+  <p align="center">
+<a 
+
+<sub>${\text{\color{#e3d9b4}   ୨\color{#a26899}ㅤ࣪ㅤ\color{#a4ad5a}︶︶︶︶ㅤㅤ\color{#e3d9b4}꒰\color{#4d4a40} ୨\color{#e3d9b4} ☯\color{#4d4a40} ୧\color{#e3d9b4} ꒱\color{#a26899}ㅤㅤ︶︶︶︶\color{#a4ad5a}ㅤ࣪ㅤ\color{#a4ad5a} ୧   }}$ <br>
 
 <p align="center"> 
   <p align="center">
@@ -15,16 +22,18 @@ $$\color{#639c9d}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨☯︎୧꒱ㅤ�
 
 <img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z82_20260509001212.png" alt="image" width="550" />
 
- $$\color{#AD9C70}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
+ $$\color{#95342c}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
 
 <div align="center">
  
-<sub>${\text{\color{#272708}•ㅤi　\color{#3d2c0e} usually　\color{#503013} sit　\color{#663519} with　\color{#6f3e1e} my　\color{#794A23} friends　\color{#745627} but　\color{#70612B} if　\color{#6a7734} you　\color{#70612B} see　\color{#70612B} me 　\color{#70612B} lounging 　\color{#70612B} around 　\color{#70612B} feel　\color{#70612B} free 　\color{#70612B} to 　\color{#70612B} sit 　\color{#70612B} with 　\color{#70612B} me }}$ <br>
+<sub>${\text{\color{#e3d9b4}•ㅤi　\color{#ce9141} usually　\color{#a4ad5a} sit　\color{#639c9d} with　\color{#553d2a} my　\color{#a26899} friends　\color{#e3d9b4} but　\color{#aa7243} if　\color{#4d4a40} you　\color{#553d2a} see　\color{#e3d9b4} me 　\color{#ce9141} lounging 　\color{#a4ad5a} around 　\color{#639c9d} feel　\color{#7e5736} free 　\color{#a26899} to 　\color{#e3d9b4} sit 　\color{#4d4a40} with 　\color{#553d2a} me }}$ <br>
+
+<sub>${\text{\color{#e3d9b4}•ㅤif　\color{#ce9141} i　\color{#a4ad5a} dont　\color{#639c9d} respond　\color{#7c5536} to　\color{#a26899} messages　\color{#e3d9b4} very　\color{#aa7243} quickly.　\color{#4d4a40} im 　\color{#553d2a} afk 　\color{#e3d9b4} or 　\color{#ce9141} offtab, }}$ <br>
   
  </a>
 </p>
  <div align="center">
- <details> <summary> $${\color{#AD9C70} ⪩♡⪨ \space cute \space odysseyduo, \space !! }$$ </summary>
+ <details> <summary> $${\color{#edaf67} ⪩♡⪨ \space cute \space odysseyduo, \space !! }$$ </summary>
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  
 <p align="middle" dir="auto" >  
