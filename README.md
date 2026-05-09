@@ -1,14 +1,11 @@
 ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新𝖻𝗈𝗈𝗄!](https://tsukkiii.atabook.org/)ㅤ꒰ঌᰔᩚ໒꒱ㅤ [strawpage!](https://wifies1.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新𝖻𝗈𝗈𝗄!](https://tsukkiii.atabook.org/)ㅤ꒰✿꒱ ㅤ[strawpage!](https://wifies1.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
 
-$$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧ }}$$
+$$\color{#639c9d}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨☯︎୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧ }}$$
 
-<div align="center">  
-
-୨୧ ────── · ·  ⠀![spyglass](https://i.postimg.cc/YSPHzsxx/Spyglass-29-JE3-BE1-(1).png)⠀ · · ────── ୨୧ 
 
 <p align="center"> 
   <p align="center">
@@ -19,14 +16,10 @@ $$\color{#7AA1A6}{\text{   ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨♡୧꒱ㅤㅤ�
 <img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z82_20260509001212.png" alt="image" width="550" />
 
  $$\color{#AD9C70}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
- 
- $$\color{#BC7EA5}{\text{•  i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
 
- $$\color{#BC7EA5}{\text{ •• if i dont respond to messages very quickly. im afk or offtab, }}$$
-
- $$\color{#BC7EA5}{\text{•  multifandom, multishipper }}$$
+<div align="center">
  
- $$\color{#BC7EA5}{\text{•  don′t copy my skins or any,! }}$$
+<sub>${\text{\color{#272708}•ㅤi　\color{#3d2c0e} usually　\color{#503013} sit　\color{#663519} with　\color{#6f3e1e} my　\color{#794A23} friends　\color{#745627} but　\color{#70612B} if　\color{#6a7734} you　\color{#70612B} see　\color{#70612B} me 　\color{#70612B} lounging 　\color{#70612B} around 　\color{#70612B} feel　\color{#70612B} free 　\color{#70612B} to 　\color{#70612B} sit 　\color{#70612B} with 　\color{#70612B} me }}$ <br>
   
  </a>
 </p>
