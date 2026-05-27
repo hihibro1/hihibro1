@@ -1,30 +1,65 @@
-  <img align="left" width="350px" salt="image" src="https://file.garden/aG4uPTNO_Dlar84S/pimpom.gif" />
-  <p align="center">
-ᅠᅠ<img width="50" alt="miniless" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_48587c9b3e46a5ea9ea4b55a68b11b8b_cf05e744_2048.png" </p>
-</p>
-   <p align="center"> $\color{#a9877c}{\textsf{I don't have a name so feel free to cal me however you want!}}$   ᅠ(ㅅ´ ˘ ‘) $\color{#c17b5e}{\textsf{C+H is always encouraged}}$ I am very friendly! Tho you should know that I AFK or offtab a lot that's why I prefer whispers over public chat any time + I use my status the way it was intended to be used </p>
- <p align="center"> $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
-   <p align=center>
- <img width="60px" salt="image" src="https://64.media.tumblr.com/94765588f70e6f99cf5b8593b5edca08/4e6f4a8c3ff6d067-01/s500x750/aba990772e0da9928199f82f2fcd6a3383f5dac3.pnj" /> 
-    <img width="60px" salt="image" src="https://64.media.tumblr.com/873be29bca2b17a1e384edfab44b8003/ad74ce6d2c267350-85/s1280x1920/b2869317472284205bff7360b5655944708fe6ec.pnj" />
-      <img width="60px" salt="image" src="https://64.media.tumblr.com/ca5d71b6f65647ce287bfe6e9b892891/4e6f4a8c3ff6d067-e5/s500x750/c43078860b8919792032bc11ba29f7d781500c03.pnj" />
- </p>
-  <p align=center>
-    <a href="https://x.com/insectlover001/status/2018360632014451004">
-<img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/cree.png" />
-      <a href="https://rentry.co/slimeknight-">
-<img width="65" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/rrrrrr" />
-             <a href="https://hash8f2240.atabook.org">
-<img width="110" alt="cre" src="https://file.garden/aG4uPTNO_Dlar84S/bok.png" />
+ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
+
+ <p align=center>
+ <a href="https://wifies1.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z72_20260527235252.png" width="260" height="auto"/></a>
+ <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z72_20260527234952.png" width="260" height="auto"/></a>
+ <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://files.catbox.moe/vg9apm.png" width="260" height="auto"/></a>
 </p>
 
-<table>
-<br>
-    <tr>
-      <td>
-        <br>
-       　<img src="https://files.catbox.moe/cy52lj.webp"> ㅤ ${\textsf{\color{#E9E6D5} that's}}$ ㅤ ${\textsf{\color{#9F318A} it}}$ ㅤ ${\textsf{\color{#ECC789} i'm}}$ ㅤ ${\textsf{\color{#E9E6D5} getting}}$ ㅤ ${\textsf{\color{#9F318A}sarcastic}}$ ${\textsf{\color{#ECC789} ㅤ ꮺ　₊　˚　⊹}}$ ㅤ <img src="https://files.catbox.moe/deij6a.webp">
-         <br>
-      </td>
-    </tr>
-    </table>
+
+
+<p align="center"> 
+  <p align="center">
+<a 
+
+<sub>${\text{\color{#e3d9b4}   ୨\color{#a26899}ㅤ࣪ㅤ\color{#a4ad5a}︶︶︶︶ㅤㅤ\color{#e3d9b4}꒰\color{#4d4a40} ୨\color{#e3d9b4} ☯\color{#4d4a40} ୧\color{#e3d9b4} ꒱\color{#a26899}ㅤㅤ︶︶︶︶\color{#a4ad5a}ㅤ࣪ㅤ\color{#a4ad5a} ୧   }}$ <br>
+
+<p align="center"> 
+  <p align="center">
+<a 
+
+<div align="center">
+
+<img align="middle" src="https://files.catbox.moe/hqb9ke.png" width="550" />
+
+
+<p align="center">
+$${\color{#95342c}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
+</p>
+
+
+<div align="center">
+ 
+ㅤ $${\color{#e3d9b4}•}$$ $${\color{#e3d9b4}i}$$ $${\color{#ce9141}usually}$$ $${\color{#a4ad5a}sit}$$  $${\color{#639c9d}with}$$ $${\color{#553d2a}my}$$ $${\color{#a26899}friends}$$ $${\color{#D6BA98}but}$$ $${\color{#aa7243}if}$$ $${\color{#4d4a40}you}$$ $${\color{#553d2a}see}$$ $${\color{#e3d9b4}me}$$ $${\color{#ce9141}lounging}$$ $${\color{#a4ad5a}around}$$ $${\color{#639c9d}feel}$$ $${\color{#a26899}free}$$ $${\color{#e3d9b4}to}$$ $${\color{#e3d9b4}sit}$$ $${\color{#4d4a40}with}$$ $${\color{#553d2a}me}$$ㅤ</br>
+
+ㅤ $${\color{#e3d9b4}•}$$ $${\color{#e3d9b4}if}$$ $${\color{#ce9141}i}$$ $${\color{#a4ad5a}dont}$$ $${\color{#639c9d}respond}$$ $${\color{#7c5536}to}$$ $${\color{#a26899}messages}$$ $${\color{#e3d9b4}very}$$ $${\color{#aa7243}quickly}$$ $${\color{#4d4a40}im}$$ $${\color{#553d2a}afk}$$ $${\color{#e3d9b4}or}$$ $${\color{#ce9141}offtab}$$ </br>
+
+ㅤ $${\color{#e3d9b4}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
+  
+ </a>
+</p>
+ <div align="center">
+ <details> <summary> $${\color{#edaf67} ⪩♡⪨ \space silly \space odysseyduo, \space 2 \space !! }$$ </summary>
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ 
+<p align="middle" dir="auto" >  
+<img width="500" height="300" alt="parrotwifies" src="https://github.com/user-attachments/assets/620a5db1-7395-4759-8a1a-9a0efa14f2b0" />
+</p> 
+
+
+ <p align="left">  
+ 
+ </p>
+</p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+</details>
+
+<p align="center"> 
+
+
+<p align="center">
+ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
+</p>
+
+`art from . fuziyamas !! `
