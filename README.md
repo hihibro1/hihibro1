@@ -27,7 +27,7 @@ $${\color{#D14733}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 ㅤ $${\color{#c7f0a0}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
   
 
-<img align="middle" src="https://files.catbox.moe/nocvwg.png" width="300" />
+<img align="middle" src="https://files.catbox.moe/m5n3so.png" width="530" />
 
 
  <p align="left">  
