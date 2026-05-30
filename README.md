@@ -1,65 +1,22 @@
-ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
+<img src="https://files.catbox.moe/4lxdzt.png" width="350" align="left">
 
- <p align=center>
- <a href="https://wifies1.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z72_20260527235252.png" width="200" height="auto"/></a>
- <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z72_20260527234952.png" width="200" height="auto"/></a>
- <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://files.catbox.moe/vg9apm.png" width="200" height="auto"/></a>
-</p>
+<table>
+<br>
+    <tr>
+      <td>
+        <br>
+       　<img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokepix2.gif"> ㅤ ${\textsf{\color{#B25E6E} CUTEST}}$ ㅤ ${\textsf{\color{#aB8168} SPOKE}}$ ㅤ ${\textsf{\color{#CBCD8F} FAN}}$ ㅤ ${\textsf{\color{#86A562} AROUND}}$ ㅤ ${\textsf{\color{#a851A0}!! ㅤ ꮺ　₊　˚　⊹}}$ ㅤ <img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokepix3.gif">
+         <br>
+      </td>
+    </tr>
+    </table>
 
-
-
-<p align="center"> 
-  <p align="center">
-<a 
-
-<sub>${\text{\color{#e3d9b4}   ୨\color{#a26899}ㅤ࣪ㅤ\color{#a4ad5a}︶︶︶︶ㅤㅤ\color{#e3d9b4}꒰\color{#4d4a40} ୨\color{#e3d9b4} ☯\color{#4d4a40} ୧\color{#e3d9b4} ꒱\color{#a26899}ㅤㅤ︶︶︶︶\color{#a4ad5a}ㅤ࣪ㅤ\color{#a4ad5a} ୧   }}$ <br>
-
-<p align="center"> 
-  <p align="center">
-<a 
-
-<div align="center">
-
-<img align="middle" src="https://files.catbox.moe/hqb9ke.png" width="550" />
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dlxdhv2ygj5crz4qr6ikyni52e&cover_image=false&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=A851A0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31dlxdhv2ygj5crz4qr6ikyni52e&redirect=true)  <img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=for-the-badge&color=A851A0&label=JEREMY" alt="profile view counter" align="up">
+<img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokeimage.gif" width="70" align="up">
 
 
-<p align="center">
-$${\color{#95342c}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
-</p>
+   ㅤ   ㅤ  ㅤ   ㅤ   ㅤ    ㅤ   ㅤ<img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokepix1.gif"> ${\textsf{\color{#B25E6E} ⺡}}$ ${\textsf{\color{#AB8168} ﹒}}$ ${\textsf{\color{#CBCD8F} ۶}}$ [rentry](https://rentry.co/duaIity)${\textsf{\color{#86A562} ⁺ }}$[ata](https://sizhui.atabook.org/) ${\textsf{\color{#569865} ﹑}}$ ${\textsf{\color{#447D83}✿}}$ ${\textsf{\color{#5D4887}゛}}$ <img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokeicon.png">
 
+<br>
 
-<div align="center">
- 
-ㅤ $${\color{#e3d9b4}•}$$ $${\color{#e3d9b4}i}$$ $${\color{#ce9141}usually}$$ $${\color{#a4ad5a}sit}$$  $${\color{#639c9d}with}$$ $${\color{#553d2a}my}$$ $${\color{#a26899}friends}$$ $${\color{#D6BA98}but}$$ $${\color{#aa7243}if}$$ $${\color{#4d4a40}you}$$ $${\color{#553d2a}see}$$ $${\color{#e3d9b4}me}$$ $${\color{#ce9141}lounging}$$ $${\color{#a4ad5a}around}$$ $${\color{#639c9d}feel}$$ $${\color{#a26899}free}$$ $${\color{#e3d9b4}to}$$ $${\color{#e3d9b4}sit}$$ $${\color{#4d4a40}with}$$ $${\color{#553d2a}me}$$ㅤ</br>
-
-ㅤ $${\color{#e3d9b4}•}$$ $${\color{#e3d9b4}if}$$ $${\color{#ce9141}i}$$ $${\color{#a4ad5a}dont}$$ $${\color{#639c9d}respond}$$ $${\color{#7c5536}to}$$ $${\color{#a26899}messages}$$ $${\color{#e3d9b4}very}$$ $${\color{#aa7243}quickly}$$ $${\color{#4d4a40}im}$$ $${\color{#553d2a}afk}$$ $${\color{#e3d9b4}or}$$ $${\color{#ce9141}offtab}$$ </br>
-
-ㅤ $${\color{#e3d9b4}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
-  
- </a>
-</p>
- <div align="center">
- <details> <summary> $${\color{#edaf67} ⪩♡⪨ \space silly \space odysseyduo, \space 2 \space !! }$$ </summary>
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- 
-<p align="middle" dir="auto" >  
-<img width="500" height="300" alt="parrotwifies" src="https://github.com/user-attachments/assets/620a5db1-7395-4759-8a1a-9a0efa14f2b0" />
-</p> 
-
-
- <p align="left">  
- 
- </p>
-</p>
-<p align="left" dir="auto">‎ ‎ ‎ </p>
-<p align="left" dir="auto">‎ ‎ ‎ </p>
-</details>
-
-<p align="center"> 
-
-
-<p align="center">
-ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
-</p>
-
-`art from . fuziyamas !! `
+<img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokeborder.gif" width="500" align="center">
