@@ -62,4 +62,4 @@ $${\color{#95342c}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
 </p>
 
-`art from . fuziyamas !! `
+`art from . appledash3r_ !! `
