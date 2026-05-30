@@ -4,14 +4,9 @@
  <a href="https://tsukkiii.atabook.org/"><img src="https://files.catbox.moe/8ojdz6.png" width="200" height="auto"/></a>
  <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://files.catbox.moe/07ahsr.png" width="200" height="auto"/></a>
 </p>
-  
-<p align="center"> 
-  <p align="center">
-<a 
 
 <div align="center">
 <img align="middle" src="https://files.catbox.moe/2o394s.png" alt="image" width="550" />
-
 
 <p align="center">
 $${\color{#D14733}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
@@ -24,7 +19,7 @@ $${\color{#D14733}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 
 ㅤ $${\color{#c7f0a0}•}$$ $${\color{#cc4339}if}$$ $${\color{#CEA91C}i}$$ $${\color{#58D031}dont}$$ $${\color{#14B9D7}respond}$$ $${\color{#8C4BCD}to}$$ $${\color{#C8358D}messages}$$ $${\color{#13CCD6}very}$$ $${\color{#CD6935}quickly}$$ $${\color{#CD3037}im}$$ $${\color{#CCC419}afk}$$ $${\color{#58D031}or}$$ $${\color{#8C4BCD}offtab}$$ </br>
 
-ㅤ $${\color{#c7f0a0}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
+ㅤ $${\color{#c7f0a0}•}$$ ㅤ $${\color{#085264}multi}$$ ㅤ $${\color{#BCF0B7}fandom}$$ ㅤ $${\color{#085264},,}$$ ㅤ $${\color{#BCF0B7}multi}$$ ㅤ $${\color{#085264}shipper}$$ ㅤ $${\color{#BCF0B7}!}$$ ㅤ $${\color{#085264}!}$$ ㅤ $${\color{#BCF0B7}:3}$$
   
 
 <img align="middle" src="https://files.catbox.moe/m5n3so.png" width="530" />
