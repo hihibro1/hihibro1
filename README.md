@@ -24,7 +24,7 @@ $${\color{#95342c}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
  
 ㅤ $${\color{#c7f0a0}•}$$ $${\color{#cc4339}i}$$ $${\color{#cb5c37}usually}$$ $${\color{#cf8326}sit}$$  $${\color{#cda11c}with}$$ $${\color{#ccab19}my}$$ $${\color{#cfc71c}friends}$$ $${\color{#becf26}but}$$ $${\color{#abce28}if}$$ $${\color{#8bcc24}you}$$ $${\color{#39d347}see}$$ $${\color{#1dd473}me}$$ $${\color{#14d392}lounging}$$ $${\color{#15cfc2}around}$$ $${\color{#16c4d4}feel}$$ $${\color{#19b3da}free}$$ $${\color{#1ba6db}to}$$ $${\color{#2283dd}sit}$$ $${\color{#1e71c8}with}$$ $${\color{#0c67a6}me}$$ㅤ</br>
 
-ㅤ $${\color{#c7f0a0}•}$$ $${\color{#e3d9b4}if}$$ $${\color{#ce9141}i}$$ $${\color{#a4ad5a}dont}$$ $${\color{#639c9d}respond}$$ $${\color{#7c5536}to}$$ $${\color{#a26899}messages}$$ $${\color{#e3d9b4}very}$$ $${\color{#aa7243}quickly}$$ $${\color{#4d4a40}im}$$ $${\color{#553d2a}afk}$$ $${\color{#e3d9b4}or}$$ $${\color{#ce9141}offtab}$$ </br>
+ㅤ $${\color{#c7f0a0}•}$$ $${\color{#cc4339}if}$$ $${\color{#CEA91C}i}$$ $${\color{#58D031}dont}$$ $${\color{#14B9D7}respond}$$ $${\color{#8C4BCD}to}$$ $${\color{#C8358D}messages}$$ $${\color{#13CCD6}very}$$ $${\color{#CD6935}quickly}$$ $${\color{#CD3037}im}$$ $${\color{#CCC419}afk}$$ $${\color{#58D031}or}$$ $${\color{#8C4BCD}offtab}$$ </br>
 
 ㅤ $${\color{#c7f0a0}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
   
