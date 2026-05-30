@@ -29,18 +29,6 @@ $${\color{#D14733}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 
 <img align="middle" src="https://files.catbox.moe/m5n3so.png" width="530" />
 
-
- <p align="left">  
- 
- </p>
-</p>
-<p align="left" dir="auto">‎ ‎ ‎ </p>
-<p align="left" dir="auto">‎ ‎ ‎ </p>
-</details>
-
-<p align="center"> 
-
-
 <p align="center">
 ㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/bj4jn9.png" alt="image" width="1000" />
 </p>
