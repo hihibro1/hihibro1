@@ -1,4 +1,4 @@
-ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
+ㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/bj4jn9.png" alt="image" width="1000" />
 
  <p align=center>
  <a href="https://tsukkiii.atabook.org/"><img src="https://files.catbox.moe/8ojdz6.png" width="200" height="auto"/></a>
@@ -49,7 +49,7 @@ $${\color{#95342c}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 
 
 <p align="center">
-ㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/tumblr_a373d8ee469aaabe12200c64e3d86ac5_f107c084_1280.png" alt="image" width="1000" />
+ㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/bj4jn9.png" alt="image" width="1000" />
 </p>
 
 `art from . appledash3r_ !! `
