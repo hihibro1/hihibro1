@@ -26,15 +26,8 @@ $${\color{#D14733}˚˖𓍢ִ໋❀ tsukii !!}$$ ㅤ
 
 ㅤ $${\color{#c7f0a0}•}$$ ㅤ $${\color{#e3d9b4}multi}$$ ㅤ $${\color{#ce9141}fandom}$$ ㅤ $${\color{#a4ad5a},,}$$ ㅤ $${\color{#639c9d}multi}$$ ㅤ $${\color{#7c5536}shipper}$$ ㅤ $${\color{#a26899}!}$$ ㅤ $${\color{#e3d9b4}!}$$ ㅤ $${\color{#a26899}:3}$$
   
- </a>
-</p>
- <div align="center">
- <details> <summary> $${\color{#edaf67} ⪩♡⪨ \space silly \space odysseyduo, \space 2 \space !! }$$ </summary>
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- 
-<p align="middle" dir="auto" >  
-<img width="500" height="300" alt="parrotwifies" src="https://github.com/user-attachments/assets/620a5db1-7395-4759-8a1a-9a0efa14f2b0" />
-</p> 
+
+<img align="middle" src="https://files.catbox.moe/nocvwg.png" width="300" />
 
 
  <p align="left">  
