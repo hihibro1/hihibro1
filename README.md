@@ -2,7 +2,6 @@
 
  <p align=center>
  <a href="https://tsukkiii.atabook.org/"><img src="https://files.catbox.moe/8ojdz6.png" width="200" height="auto"/></a>
-  ,
  <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://files.catbox.moe/07ahsr.png" width="200" height="auto"/></a>
 </p>
   
@@ -11,8 +10,7 @@
 <a 
 
 <div align="center">
-
-<img align="middle" src="https://files.catbox.moe/y87sqh.png" alt="image" width="550" />
+<img align="middle" src="https://files.catbox.moe/2o394s.png" alt="image" width="550" />
 
 
 <p align="center">
