@@ -5,22 +5,14 @@
   ,
  <a href="https://www.roblox.com/users/1919254040/profile"><img src="https://files.catbox.moe/07ahsr.png" width="200" height="auto"/></a>
 </p>
-
-
-
-<p align="center"> 
-  <p align="center">
-<a 
-
-<sub>${\text{\color{#e3d9b4}   ୨\color{#a26899}ㅤ࣪ㅤ\color{#a4ad5a}︶︶︶︶ㅤㅤ\color{#e3d9b4}꒰\color{#4d4a40} ୨\color{#e3d9b4} ☯️\color{#4d4a40} ୧\color{#e3d9b4} ꒱\color{#a26899}ㅤㅤ︶︶︶︶\color{#a4ad5a}ㅤ࣪ㅤ\color{#a4ad5a} ୧   }}$ <br>
-
+  
 <p align="center"> 
   <p align="center">
 <a 
 
 <div align="center">
 
-<img align="middle" src="https://files.catbox.moe/4lxdzt.png" alt="image" width="550" />
+<img align="middle" src="https://files.catbox.moe/y87sqh.png" alt="image" width="550" />
 
 
 <p align="center">
