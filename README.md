@@ -1,5 +1,7 @@
 <img align="left" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z121_20260703225334.png" alt="image" width="550" />
+
 <div align="center"> ㅤ </div>
+
 
 <p align="center">
 $${\color{#1D1D2E}dear}$$ $${\color{#30293E}state}$$ $${\color{#3E324B}fans;}$$ $${\color{#4C3B58}stop}$$ $${\color{#5C4566}being}$$ $${\color{#694769}parasocial.}$$ ㅤ</br>
