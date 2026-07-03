@@ -16,4 +16,4 @@ $${\color{#BE2B2A}if}$$ $${\color{#D74735}i}$$ $${\color{#F28545}dont}$$ $${\col
  <p align=center>
  <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z125_20260704020814.png" width="400" height="auto"/></a>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
