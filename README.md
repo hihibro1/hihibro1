@@ -1,11 +1,13 @@
-ㅤㅤㅤㅤㅤㅤ  <img width="160" height="50" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/huh.png" />    <img width="70" height="70" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/spky.webp" />
-
+ㅤㅤㅤㅤㅤㅤ  <img width="160" height="50" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/huh.png" />    <img width="70" height="70" alt="image" src="https://file.garden/ad7E6gx5M13uwG93/spky.webp" /> <img align="right" src="https://upload.wikimedia.org/wikipedia/commons/8/89/HD_transparent_picture.png" alt="image" width="100" /> <img align="right" src="https://upload.wikimedia.org/wikipedia/commons/8/89/HD_transparent_picture.png" alt="image" width="29" />  <img align="right" src="https://file.garden/ad7E6gx5M13uwG93/Başlıksız119_20260704013936.png" alt="image" width="100" /> 
 
 <img align="left" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z121_20260703225334.png" alt="image" width="405" />
+
+<br> <br>
+
 <div align="center"> ㅤ </div>
 
+
 <p align="center">
-<img width="70" alt="miniless" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z119_20260704013936.png" </p>
 $${\color{#FB9F99}tsukii}$$ $${\color{#F4FDDA}!!}$$ $${\color{#C0F3DA}8teen;}$$ $${\color{#BFE2FF}she}$$ $${\color{#814AD9}/}$$ $${\color{#E0DBFF}her}$$ ㅤ</br>
 $${\color{#577DDA}✦}$$ ㅤ</br>
 $${\color{#BE2B2A}i}$$ $${\color{#D74735}usually}$$ $${\color{#E05636}sitting}$$ $${\color{#E25D3A}with}$$ $${\color{#E76839}my}$$ $${\color{#F28545}friends}$$ $${\color{#E9C557}but,}$$ $${\color{#E4E666}if}$$ $${\color{#DBDE5C}you,}$$ $${\color{#B5DB5E}see}$$ $${\color{#76CD58}me}$$ $${\color{#67CA56}lounging}$$ㅤ</br>
@@ -18,4 +20,3 @@ $${\color{#BE2B2A}if}$$ $${\color{#D74735}i}$$ $${\color{#F28545}dont}$$ $${\col
  <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z125_20260704033631.png" width="400" height="auto"/></a>
 
 ㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
-
