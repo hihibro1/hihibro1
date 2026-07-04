@@ -5,7 +5,7 @@
 <div align="center"> ㅤ </div>
 
 <p align="center">
- <img align="left" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z119_20260704013936.png" alt="image" width="200" />
+<img align="right" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z119_20260704013936.png" alt="image" width="200" />
 $${\color{#FB9F99}tsukii}$$ $${\color{#F4FDDA}!!}$$ $${\color{#C0F3DA}8teen;}$$ $${\color{#BFE2FF}she}$$ $${\color{#814AD9}/}$$ $${\color{#E0DBFF}her}$$ ㅤ</br>
 $${\color{#577DDA}✦}$$ ㅤ</br>
 $${\color{#BE2B2A}i}$$ $${\color{#D74735}usually}$$ $${\color{#E05636}sitting}$$ $${\color{#E25D3A}with}$$ $${\color{#E76839}my}$$ $${\color{#F28545}friends}$$ $${\color{#E9C557}but,}$$ $${\color{#E4E666}if}$$ $${\color{#DBDE5C}you,}$$ $${\color{#B5DB5E}see}$$ $${\color{#76CD58}me}$$ $${\color{#67CA56}lounging}$$ㅤ</br>
