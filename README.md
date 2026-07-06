@@ -18,6 +18,6 @@ $${\color{#BE2B2A}if}$$ $${\color{#D74735}i}$$ $${\color{#F28545}dont}$$ $${\col
 
  <p align=center>
  <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z125_20260704033631.png" width="300" height="auto"/></a>
- <a href="https://spokeeeishere.straw.page/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z127_20260706231738.png" width="300" height="auto"/></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://spokeeeishere.straw.page/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z127_20260706231738.png" width="300" height="auto"/></a>
   
 ㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
