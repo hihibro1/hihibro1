@@ -16,13 +16,11 @@
 </p>
 
 <p align="center">
- $\textsf{
-{\color{#e2c3c8}⤿ㅤc + h}
-{\color{#e8d1bf}ㅤ𝑒𝑛𝑐ㅤㅤ⋂⑅⋂}
-{\color{#efe2bb}ㅤㅤread rentry byiㅤ}
-}$
-
-  <img src="https://file.garden/ad7E6gx5M13uwG93/mace.webp" width="40">
+ <img src="https://file.garden/ad7E6gx5M13uwG93/mace.webp" width="40">
+ 
+ <img src="https://file.garden/ad7E6gx5M13uwG93/elytra.webp" width="40">
+  
+ <img src="https://file.garden/ad7E6gx5M13uwG93/nuke.webp" width="40">
 </p>
 
 <div align="center">
