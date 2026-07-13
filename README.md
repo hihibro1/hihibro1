@@ -19,7 +19,7 @@ $${\color{#61579d}︵‿୨♡୧‿︵}$$ ㅤ
 
 <div align="center">
  
-ㅤ $${\color{#c7f0a0}•}$$ $${\color{#cc4339}i}$$ $${\color{#cb5c37}usually}$$ $${\color{#cf8326}sit}$$  $${\color{#cda11c}with}$$ $${\color{#ccab19}my}$$ $${\color{#cfc71c}friends}$$ $${\color{#becf26}but}$$ $${\color{#abce28}if}$$ $${\color{#8bcc24}you}$$ $${\color{#39d347}see}$$ $${\color{#1dd473}me}$$ $${\color{#14d392}lounging}$$ $${\color{#15cfc2}around}$$ $${\color{#16c4d4}feel}$$ $${\color{#19b3da}free}$$ $${\color{#1ba6db}to}$$ $${\color{#2283dd}sit}$$ $${\color{#1e71c8}with}$$ $${\color{#0c67a6}me}$$ㅤ</br>
+ㅤ $${\color{#c7f0a0}•}$$ $${\color{#b7a1b7}i}$$ $${\color{#a486b4}usually}$$ $${\color{#9675b1}sit}$$  $${\color{#916da9}with}$$ $${\color{#905fb2}my}$$ $${\color{#784e9c}friends}$$ $${\color{#6d3d97}but}$$ $${\color{#62327a}if}$$ $${\color{#3e3f7f}you}$$ $${\color{#41428b}see}$$ $${\color{#464797}me}$$ $${\color{#494ba3}lounging}$$ $${\color{#4e4aa1}around}$$ $${\color{#524cb0}feel}$$ $${\color{#4c5fb0}free}$$ $${\color{#5265bb}to}$$ $${\color{#5776c6}sit}$$ $${\color{#564090}with}$$ $${\color{#753f9a}me}$$ㅤ</br>
 
 ㅤ $${\color{#c7f0a0}•}$$ $${\color{#cc4339}if}$$ $${\color{#CEA91C}i}$$ $${\color{#58D031}dont}$$ $${\color{#14B9D7}respond}$$ $${\color{#8C4BCD}to}$$ $${\color{#C8358D}messages}$$ $${\color{#13CCD6}very}$$ $${\color{#CD6935}quickly}$$ $${\color{#CD3037}im}$$ $${\color{#CCC419}afk}$$ $${\color{#58D031}or}$$ $${\color{#8C4BCD}offtab}$$ </br>
 
