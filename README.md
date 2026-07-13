@@ -9,12 +9,12 @@ $${\color{#61579d}︵‿୨♡୧‿︵}$$ ㅤ
 
 <p align="center">
  $\textsf{
-{\color{#bda3d6}𓎟𓎡ㅤshe}
-{\color{#d0b0da} ノherㅤ}
+{\color{#7094bf}- ༻❁༺ -ㅤshe}
+{\color{#7094bf} ノherㅤ}
 }$
 
   <img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z132_20260713234203.png" width="67">
-  $\textsf{\color{#ddb5d7}ㅤ8tee̲n̲ 𓈒ㅤᶻ 𝘇 𐰁}$
+  $\textsf{\color{#7094bf}ㅤ8tee̲n̲ 𓈒ㅤ- ༻❁༺ -}$
 </p>
 
 <div align="center">
@@ -23,7 +23,7 @@ $${\color{#61579d}︵‿୨♡୧‿︵}$$ ㅤ
 
 ㅤ $${\color{#d6d8dd}•}$$ $${\color{#905fb2}if}$$ $${\color{#784e9c}i}$$ $${\color{#6d3d97}dont}$$ $${\color{#62327a}respond}$$ $${\color{#3e3f7f}to}$$ $${\color{#41428b}messages}$$ $${\color{#464797}very}$$ $${\color{#494ba3}quickly}$$ $${\color{#4e4aa1}im}$$ $${\color{#524cb0}afk}$$ $${\color{#4c5fb0}or}$$ $${\color{#5265bb}offtab}$$ </br>
 
-ㅤ $${\color{#d6d8dd}•}$$ ㅤ $${\color{#085264}multi}$$ ㅤ $${\color{#BCF0B7}fandom}$$ ㅤ $${\color{#085264},,}$$ ㅤ $${\color{#BCF0B7}multi}$$ ㅤ $${\color{#085264}shipper}$$ ㅤ $${\color{#BCF0B7}!}$$ ㅤ $${\color{#085264}!}$$ ㅤ $${\color{#BCF0B7}:3}$$
+ㅤ $${\color{#d6d8dd}•}$$ ㅤ $${\color{#5b4898}multi}$$ ㅤ $${\color{#902f8a}fandom}$$ ㅤ $${\color{#c3b17e},,}$$ ㅤ $${\color{#902f8a}multi}$$ ㅤ $${\color{#5b4898}shipper}$$ ㅤ $${\color{#902f8a}!}$$ ㅤ $${\color{#5b4898}!}$$ ㅤ $${\color{#ccced4}:3}$$
 
 <p align="center">
  <img src="https://file.garden/ad7E6gx5M13uwG93/mace.webp" width="40">
