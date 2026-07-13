@@ -11,7 +11,7 @@
 {\color{#d0b0da} ノanyㅤ}
 }$
 
-  <img src="https://files.catbox.moe/q35gl0.gif">
+  <img src="https://file.garden/ad7E6gx5M13uwG93/elytra.webp" width="40">
   $\textsf{\color{#ddb5d7}ㅤ8tee̲n̲ 𓈒ㅤᶻ 𝘇 𐰁}$
 </p>
 
@@ -22,8 +22,8 @@
 {\color{#efe2bb}ㅤㅤread rentry byiㅤ}
 }$
 
-  <img src="https://files.catbox.moe/do1a63.gif" width="20">
+  <img src="https://file.garden/ad7E6gx5M13uwG93/mace.webp" width="40">
 </p>
 
 <div align="center">
-<a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z136_20260714013913.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z135.png"width="210"></img>
+<a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z136_20260714013913.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z143_20260714014555.png"width="210"></img>
