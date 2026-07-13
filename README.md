@@ -19,7 +19,7 @@ $${\color{#BE2B2A}if}$$ $${\color{#D74735}i}$$ $${\color{#F28545}dont}$$ $${\col
  <p align=center>
  <a href="https://spokeeeishere.straw.page/" target="_blank">strawpage</a>  <img width="25" alt="miniless" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z128_20260706234446.png" </p>
 </p>
- <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z137_20260714003539.png" width="350" height="auto"/></a>
+ <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z139_20260714004211.png" width="350" height="auto"/></a>
 
 
 ㅤㅤㅤㅤㅤㅤㅤ`art from . yuniUoU on twt!! `
