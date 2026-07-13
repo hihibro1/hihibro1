@@ -1,4 +1,4 @@
-<p align="center"> ⸝⸝ㅤ<img src="https://komarev.com/ghpvc/?username=werifesteriaz&label=%3C%F0%9D%9F%91&color=bda3d6&style=flat" alt="werifesteriaz" />ㅤ⋆˚࿔ </p>
+<p align="center"> ⸝⸝ㅤ<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z132_20260713234203.png" width="67" alt="werifesteriaz" />ㅤ⋆˚࿔ </p>
 
 <div align="center">
 <img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z142_20260714011633.png" width="500">
