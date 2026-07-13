@@ -24,6 +24,7 @@
 
   <img src="https://files.catbox.moe/do1a63.gif" width="20">
 </p>
-ㅤㅤ
+
+ <p align=center>
 </p>
-<img align="middle" <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z138_20260714010352.png" width="400" height="auto"/></a>
+<img align="middle" <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z139_20260714004211.png" width="350" height="auto"/></a>
