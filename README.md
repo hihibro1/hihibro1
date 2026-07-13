@@ -7,11 +7,11 @@
 
 <p align="center">
  $\textsf{
-{\color{#bda3d6}𓎟𓎡ㅤ𝒕hey}
-{\color{#d0b0da} ノanyㅤ}
+{\color{#bda3d6}𓎟𓎡ㅤshe}
+{\color{#d0b0da} ノherㅤ}
 }$
 
-  <img src="https://file.garden/ad7E6gx5M13uwG93/elytra.webp" width="40">
+  <img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z132_20260713234203.png" width="67">
   $\textsf{\color{#ddb5d7}ㅤ8tee̲n̲ 𓈒ㅤᶻ 𝘇 𐰁}$
 </p>
 
