@@ -7,7 +7,8 @@
 
 
 <p align="center">
-$${\color{#1D1D2E}dear}$$ $${\color{#30293E}state}$$ $${\color{#3E324B}fans;}$$ $${\color{#4C3B58}stop}$$ $${\color{#5C4566}being}$$ $${\color{#694769}parasocial.}$$ ㅤ</br>
+$${\color{#3E324B} 
+- ༻❁༺ -ㅤsheノherㅤ}$$ $${\color{#694769} 8teen 𓈒ㅤ- ༻❁༺ -}$$ ㅤ</br>
 $${\color{#4C3B58}✦}$$ ㅤ</br>
 $${\color{#72496C}i}$$ $${\color{#7C4B6F}don't}$$ $${\color{#854C71}care}$$ $${\color{#86526D}if}$$ $${\color{#87576A}you're}$$ $${\color{#895D67}a}$$ $${\color{#8A6363}fictkin,}$$ $${\color{#936E69}an}$$ $${\color{#9B776E}irl,}$$ $${\color{#A38174}or}$$ $${\color{#AB8B79}a}$$ ㅤ</br>
 $${\color{#72496C}system.}$$ $${\color{#7C4B6F}you}$$ $${\color{#854C71}are}$$ $${\color{#86526D}not}$$ $${\color{#87576A}the}$$ $${\color{#895D67}real}$$ $${\color{#8A6363}character,}$$ $${\color{#936E69}so}$$ $${\color{#9B776E}stop}$$ $${\color{#A38174}acting}$$ $${\color{#AB8B79}like}$$ ㅤ</br>
