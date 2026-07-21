@@ -1,6 +1,11 @@
 <img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z154_20260721143308.png" width="200" align="left">
 <div align="center"> ㅤ </div>
 
+
+
+<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z154_20260721143300.png" width="200" align="right">
+
+
 <p align="center">
 $${\color{#1D1D2E}dear}$$ $${\color{#30293E}state}$$ $${\color{#3E324B}fans;}$$ $${\color{#4C3B58}stop}$$ $${\color{#5C4566}being}$$ $${\color{#694769}parasocial.}$$ ㅤ</br>
 $${\color{#4C3B58}✦}$$ ㅤ</br>
@@ -13,5 +18,3 @@ $${\color{#72496C}this}$$ $${\color{#7C4B6F}goes}$$ $${\color{#854C71}for}$$ $${
 $${\color{#4C3B58}✦}$$ ㅤ</br>
 $${\color{#1D1D2E}thank}$$ $${\color{#30293E}you}$$ $${\color{#3E324B}for}$$ $${\color{#4C3B58}reading}$$ $${\color{#5C4566}this}$$ $${\color{#694769}♡}$$ ㅤ</br>
 </p>
-
-<img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z154_20260721143300.png" width="200" align="right">
