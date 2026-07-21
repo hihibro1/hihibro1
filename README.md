@@ -19,6 +19,8 @@ $${\color{#72496C}you}$$ $${\color{#7C4B6F}know}$$ $${\color{#854C71}any}$$ $${\
 $${\color{#1D1D2E}thank}$$ $${\color{#30293E}you}$$ $${\color{#3E324B}for}$$ $${\color{#4C3B58}reading}$$ $${\color{#5C4566}this}$$ $${\color{#694769}♡}$$ ㅤ</br>
 </p>
 
+<div align="center">
+<img src="https://file.garden/ad7E6gx5M13uwG93/1804_20260721170453.png" width="230">
 
 <div align="center">
 <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z137_20260721151905.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z137_20260721151151.png"width="210"></img>
