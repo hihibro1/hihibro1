@@ -5,7 +5,7 @@
     <tr>
       <td>
         <br>
-       　<img src="https://file.garden/ad7E6gx5M13uwG93/elytra.webp"> ㅤ ${\textsf{\color{#E9E6D5} c+h }}$ ㅤ ${\textsf{\color{#9F318A} freely }}$ ㅤ ${\textsf{\color{#ECC789} unless }}$ ㅤ ${\textsf{\color{#E9E6D5} on }}$ ㅤ ${\textsf{\color{#9F318A}dni}}$ ${\textsf{\color{#ECC789} ☆⌒(ゝ。∂) }}$ ㅤ <img src="https://file.garden/ad7E6gx5M13uwG93/mace.webp">
+       　<img src="https://files.catbox.moe/cy52lj.webp"> ㅤ ${\textsf{\color{#E9E6D5} c+h }}$ ㅤ ${\textsf{\color{#9F318A} freely }}$ ㅤ ${\textsf{\color{#ECC789} unless }}$ ㅤ ${\textsf{\color{#E9E6D5} on }}$ ㅤ ${\textsf{\color{#9F318A}dni}}$ ${\textsf{\color{#ECC789} ☆⌒(ゝ。∂) }}$ ㅤ <img src="https://files.catbox.moe/cy52lj.webp">
          <br>
       </td>
     </tr>
