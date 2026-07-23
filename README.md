@@ -1,22 +1,23 @@
+<img src="https://file.garden/ad7E6gx5M13uwG93/taxduo2.png" width="250" align="left">
 
-<p align="center">
-${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\color{#ffaabb}wanna}}$ ${\textsf{\color{#ffe592}be}}$ ${\textsf{\color{#6de3ff}my}}$ ${\textsf{\color{#ffaabb}lover?}}$ ${\textsf{\color{#ffe592}☆⌒(ゝ。∂)}}$
-</p>
-‎ ‎
+<table>
+<br>
+    <tr>
+      <td>
+        <br>
+       　<img src="https://files.catbox.moe/cy52lj.webp"> ㅤ ${\textsf{\color{#E9E6D5} that's}}$ ㅤ ${\textsf{\color{#9F318A} it}}$ ㅤ ${\textsf{\color{#ECC789} i'm}}$ ㅤ ${\textsf{\color{#E9E6D5} getting}}$ ㅤ ${\textsf{\color{#9F318A}sarcastic}}$ ${\textsf{\color{#ECC789} ㅤ ꮺ　₊　˚　⊹}}$ ㅤ <img src="https://files.catbox.moe/deij6a.webp">
+         <br>
+      </td>
+    </tr>
+    </table>
 
-<p align="center">
-<img src="https://file.garden/ad7E6gx5M13uwG93/taxduo2.png" width="300" align="middle">
-</p>
-
-‎ ‎
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=r50omvhsrl8w858a7wx8gqxox&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=343332&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  <img src="https://komarev.com/ghpvc/?username=overoverkill&style=plastic&color=eba657&label=swag" alt="profile view counter" align="up">
+<img src="https://files.catbox.moe/vxhw1k.webp" width="50" height="50" align="up">
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎‎‎ ‎ ‎ [![rentry](https://file.garden/ae-FUgfELjoYT3k-/ezgif-1b756ffe645c66e0.png)](https://rentry.co/appendixslayer) ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎  [![ata](https://file.garden/ae-FUgfELjoYT3k-/ezgif-10cb2085da723354.png)](https://emari.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎  [![rentry2](https://file.garden/ae-FUgfELjoYT3k-/ezgif-1a890c0ccf0940f4.png)](https://rentry.co/neapolitans) 
+   ㅤ   ㅤ  ㅤ   ㅤ   ㅤ    ㅤ   ㅤ<img src="https://files.catbox.moe/0flgqz.gif"> ${\textsf{\color{#E9E6D5} ⺡}}$ ${\textsf{\color{#9F318A} ﹒}}$ ${\textsf{\color{#ECC789} ۶}}$ [rentry](https://rentry.co/qrws)${\textsf{\color{#E9E6D5} ⁺ }}$[ata](https://aculon.atabook.org/) ${\textsf{\color{#9F318A}﹑}}$[prns](https://pronouns.cc/@aculon) ${\textsf{\color{#ECC789}✿}}$ ${\textsf{\color{#E9E6D5}゛}}$ 
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\textsf{\color{#E9E6D5} Ponytown's}}$ ${\textsf{\color{#9F318A} Ashswagg}}$ ${\textsf{\color{#ECC789} !!}}$ [໒꒱](https://github.com/title-town) ${\textsf{\color{#E9E6D5}‧₊}}$ 
+<br>
 
-<p align=center> ${\textsf{\color{#ffe592}(˶ˆᗜˆ˵)}}$‎ ${\textsf{\color{#6de3ff}thank}}$ ${\textsf{\color{#ffaabb}u}}$ ${\textsf{\color{#ffe592}to}}$‎ <a href="https://github.com/ponytowners/">ponytowners</a> ${\textsf{\color{#ffaabb}and}}$ <a href="https://github.com/pt-players/">pt-players</a> ${\textsf{\color{#6de3ff}+}}$ <a href="https://github.com/pt-walk-of-fame/">pt walk of fame</a>
-‎ ‎
-
-<p align="center">
- <img src="https://file.garden/ae-FUgfELjoYT3k-/29382fce.gif" /> ‎ ‎ ‎ ‎ ‎  <img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=yellow&label=MEMORIES&base=11337&abbreviated=true" alt="GitHub Profile Views" /> ‎ ‎ ‎ ‎ ‎   <img src="https://file.garden/ae-FUgfELjoYT3k-/2a141261.gif" />
-</p>
+<img src="https://files.catbox.moe/vo9x7g.gif" width="500" height="10" align="center">
