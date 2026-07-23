@@ -1,7 +1,7 @@
 <img src="https://file.garden/ad7E6gx5M13uwG93/taxduo2.png" width="250" align="left">
 
 <p align="center">
-<img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">  $${\color{#CEAF92}- ༻❁༺ -}$$  $${\color{#853d7d}  sheノherㅤ}$$ $${\color{#853d7d} 8teen 𓈒ㅤ}$$ $${\color{#CEAF92}- ༻❁༺ -}$$  <img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">ㅤ</br>
+<img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">  $${\color{#CEAF92}- ༻✿༺ -}$$  $${\color{#853d7d}  sheノherㅤ}$$ $${\color{#853d7d} 8teen 𓈒ㅤ}$$ $${\color{#CEAF92}- ༻✿༺ -}$$  <img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">ㅤ</br>
 $${\color{#a5abb7}︵‿୨♡୧‿︵}$$ ㅤ</br>
 
 <p align="center">
