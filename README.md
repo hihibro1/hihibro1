@@ -8,8 +8,11 @@ $${\color{#a5abb7}︵‿୨♡୧‿︵}$$ ㅤ</br>
 $${\color{#853d7d}◟}$$
 $${\color{#7F5791}c+h}$$ $${\color{#76518A}freely}$$ $${\color{#734F8B}unless;}$$ $${\color{#6D4A85}on}$$ $${\color{#694A86}dni}$$ $${\color{#CEAF92} ☆⌒(ゝ。∂) }$$ $${\color{#853d7d}✿}$$ ㅤ</br>
 $${\color{#a5abb7}✦}$$ ㅤ</br>
-$${\color{#cdb9f5}i}$$ $${\color{#ab93df}dont}$$ $${\color{#987ec7}have}$$ $${\color{#9579c4}a}$$ $${\color{#8569b6}dni}$$ $${\color{#725d99}if}$$ $${\color{#4f3a75}i,}$$ $${\color{#725d99}have}$$ $${\color{#8569b6}a,}$$ $${\color{#987ec7}problem}$$ $${\color{#ab93df}with}$$ $${\color{#cdb9f5}someone}$$ $${\color{#bca4ec}i}$$ $${\color{#b097e1}just}$$ $${\color{#9274cd}block}$$ $${\color{#8974cd}them}$$ㅤ</br>
+$${\color{#7F5791}i}$$ $${\color{#76518A}dont}$$ $${\color{#734F8B}have}$$ $${\color{#6D4A85}a}$$ $${\color{#694A86}dni}$$ $${\color{#7F5791}if}$$ $${\color{#76518A}i,}$$ $${\color{#734F8B}have}$$ $${\color{#6D4A85}a,}$$ $${\color{#694A86}problem}$$ $${\color{#7F5791}with}$$ $${\color{#76518A}someone}$$ $${\color{#734F8B}i}$$ $${\color{#6D4A85}just}$$ $${\color{#694A86}block}$$ $${\color{#694A86}them}$$ㅤ</br>
 </p>
+
+<p align="center">
+<img src="https://file.garden/ad7E6gx5M13uwG93/wemmbus%20silly%20face.png" width="70" align="middle">
 
 <div align="center">
 <a href="https://tsukkiii.atabook.org/"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172320.png"width="210"></img></a> ㅤ<a href="https://spokeeeishere.straw.page"><img src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z168_20260723172513.png"width="210"></img>
