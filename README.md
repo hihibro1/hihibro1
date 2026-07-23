@@ -5,7 +5,7 @@
     <tr>
       <td>
         <br>
-       　<img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png"> ㅤ ${\textsf{\color{#7F5791} c+h }}$ ㅤ ${\textsf{\color{#76518A} freely }}$ ㅤ ${\textsf{\color{#734F8B} unless }}$ ㅤ ${\textsf{\color{#6D4A85} on }}$ ㅤ ${\textsf{\color{#694A86}dni}}$ ${\textsf{\color{#CEAF92} ☆⌒(ゝ。∂) }}$ ㅤ <img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">
+       　<img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">    ${\textsf{\color{#CEAF92} ✿ }}$ ${\textsf{\color{#7F5791} c+h }}$ ㅤ ${\textsf{\color{#76518A} freely }}$ ㅤ ${\textsf{\color{#734F8B} unless }}$ ㅤ ${\textsf{\color{#6D4A85} on }}$ ㅤ ${\textsf{\color{#694A86}dni}}$ ${\textsf{\color{#CEAF92} ☆⌒(ゝ。∂) }}$  ${\textsf{\color{#CEAF92} ✿ }}$ㅤ <img src="https://file.garden/ad7E6gx5M13uwG93/flowerrr.png">
          <br>
       </td>
     </tr>
