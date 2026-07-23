@@ -5,7 +5,7 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
 ‎ ‎
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/3c11e3a8-767f-4ef1-a2eb-2cb438805e57" />
+<img src="https://file.garden/ad7E6gx5M13uwG93/taxduo2.png" width="300" align="middle">
 </p>
 
 ‎ ‎
